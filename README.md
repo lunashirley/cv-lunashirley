@@ -1,7 +1,7 @@
 # Luna Shirley
 
 **RevOps-Focused CRO | Driving Sustainable SaaS Growth to €1.25M MRR & Beyond**  
-*Prague, Czechia*  
+*Prague, Czechia* or *Fukuoka, Japan*  
 📧 luna.shirleycz@gmail.com · 📞 +420 737 929 671  
 [LinkedIn](https://www.linkedin.com/in/lunamayshirley) · [Medium](https://medium.com/@lunamay)
 
