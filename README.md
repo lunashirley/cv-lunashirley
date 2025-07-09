@@ -1,3 +1,178 @@
-# Luna Shirley – Full CV
+# Luna Shirley
 
-Contact Luna Shirley +420 737 929 671 (Mobile) luna.shirleycz@gmail.com RevOps-Focused CRO | Driving Sustainable SaaS Growth to €1.25M MRR & Beyond www.linkedin.com/in/ Prague, Czechia lunamayshirley (LinkedIn) medium.com/@lunamay/ (Blog) Summary Top Skills I'm a senior manager in MarTech with experience growing series A & Business Strategy series B SaaS businesses with Monthly Recurring Revenue up to €1 SaaS Sales 250 000 MRR. I enjoy creating an environment that helps businesses Strategic Partnerships to achieve sustainable growth. Languages UNFAIR ADVANTAGES English (Native or Bilingual) Japanese (Professional Working) The experience I've gained helps me understand what's feasible & Czech (Native or Bilingual) my personality gives me the determination to achieve it. Certifications ✨ Possessing strong commercial skillset & tech foundations. Data Scientist with Python Track ✨ Hands-on experience with 40+ businesses from the online retail, Google AdWords Individual AdTech, MarTech, and SaaS space. Qualification ✨ Resilient & determined. PRINCE 2 Foundation MSP® Foundation Certificate in Programme Management ACCOMPLISHMENTS Publications All below stated accomplishments were only possible due to strong Turning Insights Into Actions team effort & collaboration across departments. No matter the GDPR First Aid Kit: Risk Analysis accomplishment, they belong to all involved.  Marketing in Social Media GDPR Without Stress Transformed stagnant & EBITDA-negative company into ~50 % YoY Deep Dive Into AI hypergrowing EBITDA-positive business. Raised global marketing ROI in B2B SaaS above 900 %. Designed & launched an AI-enhanced customer lifecycle management process (online retail). LIFE'S MISSION My life's mission is to remove obstacles to progress and I exercise it in the following way.   Page 1 of 6     ‍♀✨ Towards businesses -> Removing barriers to growth & internal maturity. ‍♀✨ Towards those around me -> Providing opportunities for success & self-realization. ‍♀✨ Towards myself -> Overcoming discomfort & always learning. Experience ROI Hunter 6 years Chief Revenue Officer (CRO) October 2023 - Present (1 year 10 months) Brno, South Moravia, Czechia I've returned to my former role as Chief Revenue Officer to assist the company in achieving its goals for sustainable growth. • Re-established partnerships as a major source of revenue growth • Heavily streamlined commercial operations, significantly reducing operational complexity • Revamped remuneration schemes to incentivize high performance in a challenging environment • Sponsoring key partnership initiatives with Meta and Snapchat • Representing the commercial organization at board meetings External Advisor August 2022 - September 2023 (1 year 2 months) As an external advisor, I continued to support the business by overseeing the delivery of RevOps projects. Chief Revenue Officer (CRO) July 2021 - July 2022 (1 year 1 month) Prague, The Capital, Czech Republic As an interim Chief Revenue Officer, my role is to build a resilient commercial organization and prepare ROI Hunter for the exponential growth phase in 2022 and beyond under a future CRO. • Responsible for global revenue achievement, achieved 48 % YoY growth at positive EBITDA • Lead commercial arm of the company consisting of 25+ talented individuals across EMEA & Americas   Page 2 of 6     • Full responsibility for the use & deployment of commercial budgets • Ownership of commercial incentives & remuneration schemes  • Oversaw revenue-related tech stack & performance tracking infrastructure Head of Demand Generation & Commercial Ops August 2019 - July 2021 (2 years) Prague, The Capital, Czech Republic My mission at ROI Hunter is to transform the marketing team into a strong revenue-oriented demand generation department by working together with Sales, Product & Finance to ensure the company's long-term sustainable growth. • Transformed Marketing into Demand Generation, overseeing Marketing, BizDev, and BizOps functions • Introduced ABM methodology leading to improvement of MQL -> Opportunity conv. rate by 138 % • Touched deals by demand generation had 24 % shorter time to close & 32 % higher ACV • Provided support to local sales teams across EMEA & Americas Yuzuri Chief Executive Officer March 2023 - Present (2 years 5 months) Fukuoka, Japan Yuzuri is a small boutique agency that provides fractional CRO & Revenue Operations (RevOps) services for Series A & B SaaS businesses, supporting them in their journey toward sustainable growth. Bloomreach 1 year 10 months Head of Marketing Enablement (of Exponea, acq. by Bloomreach) December 2018 - July 2019 (8 months) Greater New York City Area Exponea (acquired by Bloomreach), was a global scale-up with 100+ employees & an end-to-end Customer Data Platform (CDP), combining advanced customer data analytics with omni-channel campaign execution. It enabled retail & pure-play e-commerce businesses to understand customer behavior and immediately launch highly personalized campaigns for each individual customer through their preferred channels.   Page 3 of 6     My responsibility was to contribute to Exponea's growth by supporting demand generation & sales activities globally through direct leadership of content & regional marketing teams. • Co-defined on Exponea’s global & regional communication strategy • Prepared market entry analyses to inform future GTM (US, APAC) • Executed regional GTM (go-to-market) alongside sales team • Delivered regional event ROI > 5x (i.e. OMR, NRF, own events) • Actively provided coaching to the team members to develop them along their growth paths Head of Content (of Exponea, acq. by Bloomreach) October 2017 - November 2018 (1 year 2 months) Prague, The Capital, Czech Republic Turning insights into stories that convert visitors into customers is my daily bread as Exponea's Head of Content. My goal is to create a team that will help online retailers to harness marketing automation in the right way and as an effect, contribute to Exponea's organic growth. In order to achieve that, we are bringing together a stellar team of content creators. • Built up Exponea's internal content team focused on sales & marketing enablement • Planned content strategy around search intent & sales insights to capture existing demand • Executed strategy led to organic growth of inbound leads & heavy utilization across the sales process • Cooperated with the marketing team on the execution of lead generation & nurturing campaigns • Provided insights to sales teams about on-site content interaction which led to ≈ 20 % shorter sales cycle • Worked closely with SDR, sales teams & management to produce content supporting their needs E-kom Promotion s.r.o. CMO May 2013 - June 2018 (5 years 2 months) District Brno-City, Czech Republic   Page 4 of 6     All of my responsibilities were centered around helping our, primarily e- commerce, clients generate more revenue and achieve higher profitability through optimization of their marketing activities. • Provided deep business intelligence analyses to inform growth strategies for our clients • Executed performance & nurturing marketing strategies for 20+ online retail clients • Achieved on average 40 % YoY organic growth & performance ROAS > 6 for our online retail clients • Held client trainings in marketing-related topics especially focused on performance and social media • Spearheaded the development of AI-enhanced e-commerce insights dashboard Expats.cz Marketer & Business Intelligence Analyst June 2016 - January 2018 (1 year 8 months) Prague, The Capital, Czech Republic My role within Expats was to fully utilize my marketing, business intelligence & data science skillset to help the company make decisions supported by data & execute them. • Generated qualified traffic for News, Jobs & Real Estate sections of the portal • Reduced jobs & real estate paid campaigns CPA by 63 % at a stable investment level. • Achieved ROAS > 9 across affiliate projects focused on Prague's English- speaking community • Outlined and deployed extensive analytical layers for all managed properties to understand user behavior • Provided insights into the current business, identified opportunities, and validated their feasibility UNIFER Online Marketing Mentor March 2014 - December 2016 (2 years 10 months) District Brno-City, Czech Republic I was a mentor for anything related to online marketing. If I wasn't doing workshops with students, I was helping marketing team with their activities for clients.    Page 5 of 6     • Mentoring university students on online marketing-related topics • Providing coaching & support for a client-facing marketing team • Holding practical online marketing workshops FB Heroes, s.r.o. Co-founder & Head of Marketing January 2012 - December 2016 (5 years) Prague, The Capital, Czech Republic My role here was making sure everything runs smoothly & of course making sure the ROI was as high as possible. • Reviewing marketing strategies for clients • Communicating with clients and strategic partners • Creating corporate strategy and setting goals • Drafting & executing marketing & PR strategies for key clients • Managing FBH team Fashion Days Shopping, s.r.o. Social Media Specialist & Coordinator, SEE March 2011 - June 2012 (1 year 4 months) Czech Republic • Directly managing performance campaigns for CZ & SR with ROAS > 7 & CPA below 40 % of target • Directly managing social media presence for the Czech Republic • Coordinating PPC & SM activities in Bulgaria, Hungary, Romania, Slovenia, Slovakia • Creating microsites & Facebook applications • "Backup" IT support for Czech office :) • Various other tasks Education The Institute of Law and Jurisprudence Master of Business Administration (MBA), Business Development · (2016 - 2020)   Page 6 of 6
+**RevOps-Focused CRO | Driving Sustainable SaaS Growth to €1.25M MRR & Beyond**  
+*Prague, Czechia*  
+📧 luna.shirleycz@gmail.com · 📞 +420 737 929 671  
+[LinkedIn](https://www.linkedin.com/in/lunamayshirley) · [Medium](https://medium.com/@lunamay)
+
+---
+
+## 🧩 Summary
+
+Senior MarTech executive with experience scaling Series A & B SaaS businesses to €1.25M MRR. Known for creating sustainable growth environments, aligning commercial operations, and driving profitability.
+
+---
+
+## 💠 Unfair Advantages
+
+- Strong commercial skillset with technical acumen  
+- Hands-on experience with 40+ online retail, AdTech, MarTech, and SaaS businesses  
+- Resilient and determined personality, results-driven
+
+---
+
+## 🏆 Key Accomplishments
+
+- Transformed stagnant, EBITDA-negative company into 50% YoY hypergrowth EBITDA-positive business  
+- Raised global B2B SaaS marketing ROI above 900%  
+- Designed & launched AI-enhanced customer lifecycle management system (eCommerce)
+
+---
+
+## 🎯 Life’s Mission
+
+- **For businesses**: Remove barriers to growth and internal maturity  
+- **For others**: Create opportunities for self-realization and success  
+- **For self**: Embrace discomfort and pursue lifelong learning
+
+---
+
+## 💼 Experience
+
+### ROI Hunter (6 years)
+
+**Chief Revenue Officer (CRO)**  
+*Oct 2023 – Present | Brno, Czechia*  
+- Re-established partnerships as a major revenue stream  
+- Streamlined operations, reduced complexity  
+- Revamped remuneration schemes for high performance  
+- Sponsored Meta and Snapchat strategic partnerships  
+- Represented commercial org at board meetings
+
+**External Advisor**  
+*Aug 2022 – Sep 2023*  
+- Oversaw RevOps project delivery
+
+**Chief Revenue Officer (CRO)**  
+*Jul 2021 – Jul 2022 | Prague, Czech Republic*  
+- 48% YoY revenue growth at positive EBITDA  
+- Led 25+ commercial staff across EMEA & Americas  
+- Oversaw commercial budget, stack, and incentives
+
+**Head of Demand Generation & Commercial Ops**  
+*Aug 2019 – Jul 2021*  
+- Transformed marketing into demand generation function  
+- Introduced ABM; improved MQL→Opportunity rate by 138%  
+- Decreased deal time by 24%; increased ACV by 32%
+
+---
+
+### Yuzuri
+
+**Chief Executive Officer**  
+*Mar 2023 – Present | Fukuoka, Japan*  
+- Boutique agency offering fractional CRO and RevOps services to Series A & B SaaS businesses
+
+---
+
+### Bloomreach (Exponea) (1 year 10 months)
+
+**Head of Marketing Enablement**  
+*Dec 2018 – Jul 2019 | NYC Area*  
+- Shaped global/regional communication strategy  
+- Informed GTM via market entry analysis (US, APAC)  
+- Delivered event ROI > 5×; enabled global sales org
+
+**Head of Content**  
+*Oct 2017 – Nov 2018 | Prague*  
+- Built content team supporting inbound & sales enablement  
+- Shortened sales cycle by ~20% via insight-driven content  
+- Led organic growth initiatives via search-aligned strategy
+
+---
+
+### E-kom Promotion
+
+**Chief Marketing Officer (CMO)**  
+*May 2013 – Jun 2018 | Brno, Czech Republic*  
+- Led performance marketing strategies for 20+ eCom clients  
+- Achieved 40% YoY growth, ROAS > 6  
+- Trained clients, developed AI-powered eCom insights
+
+---
+
+### Expats.cz
+
+**Marketer & Business Intelligence Analyst**  
+*Jun 2016 – Jan 2018 | Prague*  
+- Increased traffic & conversion across job/real estate channels  
+- Reduced CPA by 63%, ROAS > 9 on affiliate campaigns  
+- Developed full-stack analytics for user behavior tracking
+
+---
+
+### UNIFER
+
+**Online Marketing Mentor**  
+*Mar 2014 – Dec 2016 | Brno*  
+- Mentored university students and coached internal teams  
+- Conducted hands-on workshops in online marketing
+
+---
+
+### FB Heroes, s.r.o.
+
+**Co-founder & Head of Marketing**  
+*Jan 2012 – Dec 2016 | Prague*  
+- Oversaw marketing, strategy, client relations, and team ops  
+- Delivered high-ROI digital strategies for key clients
+
+---
+
+### Fashion Days Shopping
+
+**Social Media Specialist & Regional Coordinator**  
+*Mar 2011 – Jun 2012 | Czech Republic*  
+- Managed PPC and social for CZ/SK (ROAS > 7, low CPA)  
+- Oversaw SM/PPC ops in BG, HU, RO, SI, SK  
+- Built microsites, apps; served as local IT backup
+
+---
+
+## 🎓 Education
+
+**MBA in Business Development**  
+*The Institute of Law and Jurisprudence (2016–2020)*
+
+---
+
+## 🛠️ Skills & Tools
+
+- **Top Skills**: Business Strategy, SaaS Sales, Strategic Partnerships  
+- **Certifications**:  
+  - Data Scientist with Python  
+  - Google AdWords Qualified  
+  - PRINCE2 Foundation  
+  - MSP® Programme Management
+
+---
+
+## 🌐 Languages
+
+- English: Native or Bilingual  
+- Czech: Native  
+- Japanese: Professional Working Proficiency
+
+---
+
+## ✍️ Publications
+
+- Turning Insights Into Actions  
+- GDPR First Aid Kit  
+- Marketing in Social Media  
+- GDPR Without Stress  
+- Deep Dive Into AI
+
+---
+
+_Last updated: 2025_
